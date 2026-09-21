@@ -1,2 +1,4 @@
-# HassanRaminkura-
-Hassan S. Raminkura — Creative Professional | Writer | Digital Creator
+HassanRaminkura
+
+Hassan S. Raminkura
+Creative Professional | Writer | Digital Creator
